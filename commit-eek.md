@@ -1,1 +1,1 @@
-I Love Goldie
+I Love Edward
