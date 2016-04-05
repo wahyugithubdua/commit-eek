@@ -1,1 +1,1 @@
-I Love Sammy
+I Love Nevada
