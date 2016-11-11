@@ -1,1 +1,1 @@
-I Love Johnette
+I Love Rickie
