@@ -1,1 +1,1 @@
-I Love Aranas
+I Love Ora
