@@ -1,1 +1,1 @@
-I Love Janay
+I Love Ariel
