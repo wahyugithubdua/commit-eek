@@ -1,1 +1,1 @@
-I Love Barthelman
+I Love Stanford
