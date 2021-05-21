@@ -1,1 +1,1 @@
-I Love Sina
+I Love Amoa
